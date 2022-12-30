@@ -3,7 +3,7 @@
 ★ You can reach me:
 - shinkarencokris@gmail.com
 - https://t.me/oldsquirrel
-- https://instagram.com/kris_shinkarenko
+- https://instagram.com/kris_shinkarenсo
 
 <!---
 Lounaco/Lounaco is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
