@@ -1,7 +1,7 @@
 ★ Hi, I’m @Lounaco
 ★ I am searching for my own way and studying JS, CSS, HTML.
 ★ You can reach me:
-- squirrelonair@gmail.com
+- shinkarencokris@gmail.com
 - https://t.me/oldsquirrel
 - https://instagram.com/kris_shinkarenko
 
